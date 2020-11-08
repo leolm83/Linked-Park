@@ -1,0 +1,1 @@
+Este projeto é um trabalho de Conclusao de Curso, feito em conjunto por alunos e professores, posteriormente essa descricao será editada para expor os creditos devidos.
